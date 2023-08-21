@@ -1,1 +1,0 @@
-# sosayosha.github.io
